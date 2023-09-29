@@ -1,2 +1,2 @@
-WhoAmI - A casual student
+WhoAmI - A student, reaching for greater goods
 
